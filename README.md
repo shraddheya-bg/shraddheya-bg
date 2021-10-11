@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shraddheya-bg
+- 👀 I’m interested in Full Stacks Go lang nad python
+- 🌱 I’m currently learning How to unlearn
+- 💞️ I’m looking to collaborate on Innovative ideas
+- 📫 How to reach me shraddheya.s@bridge-global.com
